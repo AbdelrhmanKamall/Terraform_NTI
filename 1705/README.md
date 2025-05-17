@@ -1,0 +1,1 @@
+![lab-1.png](https://i.ibb.co/Xkp3QqdM/lab-1.png)
